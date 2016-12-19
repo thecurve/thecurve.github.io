@@ -1,1 +1,0 @@
-# thecurve.github.io
